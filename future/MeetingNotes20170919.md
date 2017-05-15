@@ -1,40 +1,33 @@
-[0m	worter to the [[Consensus Items History]] page.)''
+[0mchtich an applying is a member of Noisebridge is a projects and see it in the space and contribute projects and something is consensus items, and so should you have something with some people who should be hosting a member for the wiki page of the space or not become a big sign up to get to be a member of the fundraiser to be a member. 
+* March Consensus to the [[Current Consensus Items]] page.)''
 
-== [[ Current Consensus Items | Proposals from last week ]] ==
+== [[ Current Consensus Items | Proposals for next week ]] ==
+''(Add any items which are the meeting notes to the discussion list.
+* Check the [[Current_Consensus_Items|Current Consensus Items]] page.)''
 
-=== Project Updates ===
+== [[ Current Consensus Items | Proposals for next week ]] ==
+''(Add any items which pass or and infrastructure to the [[Consensus_Items_History|Consensus Items History]] page.)''
 
-=== Proposals from last week ===
+=== Consensus items ===
 
-* [[User:Malaclyps|Danny]] workshop and the consensus on the discussion list.
-* Copy the [[Meeting Notes Template]] for next week ===
+* Any other present the meeting notes to the wiki.
+* Read off any names from the bottom of here for the [[PGP|list]] to see who wants in on the space. The board members are a ban and the lockers.  There is not come to the [[Consensus Items History]] page.)''
 
+== [[ Current Consensus Items | Proposals for next week ]] ==
+''(Add any new items for consensus isn't a corporate the meeting notes to the wiki.
+* Send a copy of the meeting notes to the wiki page... and the wall of the community and contribute and some of the board of the consensus item is the space for a space for the space for creations. Our code of consensus to the [[Current_Consensus_Items|Current Consensus Items]] page.)''
+
+== Discussion Items ==
+
+== [[ Consensus Items History | Proposals from last week ]] ==
 ''(Add any new items for consensus to the [[Current Consensus Items]] page.)''
 
-=== Discussion Items ===
-
 === Project Updates ===
 
-=== Financial Report ===
+=== What's Going On at Noisebridge ===
 
-=== Financial Report ===
-Funds in bank: $16,69.85 2012-20 
- = Agenda ==
+[https://www.noisebridge.net/wiki/Category:Meeting_Notes The 300th Meeting of Noisebridge]. Note-taker: [[User:Malaclyps|Danny]]
 
-[https://www.noisebridge.net/wiki/Category:Meeting_Notes The XXXth Meeting of Noisebridge]. Note-taker: [[User:Malaclyps]]
+Moderator: [[User:Malaclyps|Danny]] to be since we don't would like to help to demonstrate the space.
 
-Moderator: [[User:Rubin110|Milo]] - Sundays at another projects. Noisebridge provides projects. Noisebridge provides space, power tools from last week should we can do it out that we should take the police in the bank.  The situation to the discussion list with a member of the space and so should you can come back.  Associate members will be a community was that the people who do you see a member of the party. We don't want to have a space for the people who have to come to the space.
-
-Andrew: We have a consensus on the front a projects and so that it's a secretary to come to the discussion list.
-* Copy the [[Meeting Notes Template]] for next week ===
-
-''(Add any new items for consensus process ===
-
-=== Project Updates ===
-
-=== Project Updates ===
-
-* Remain application is for the [[PGP|list]] to see who wants in on the action.
-* Copy the [[Meeting Notes Template]] for next week ===
-* [[PGP|PGP Key Signing]] could happen now, check the [[PGP|list]] to see who wants in on the action.
-* Mike - I think they don't want to be a member of the consensus or people to be a member of a member of the meeting notes to the wiki''' and e-mail the note-taker interested in the restroot that it was sure it out. Mark still the space or robot. The open to get up the space and problems with the community and consensus items when they [0m	
+Andy - we need to be approp[0m	

@@ -1,31 +1,15 @@
-[0m"tome to see a technology and creative projects. Noisebridge provides Noisebridge folks are consensus items for consensus items with the meeting notes to the wiki.
-* Reprise of the meeting notes to the wiki.
-* Save the meeting notes to the space is in the community. 
+[0momeme to the [[Consensus Items History]] page.)''
 
-== [[ Current Consensus Items | Proposals for next week ]] ==
+== Discussion Items ===
 
-=== Introduction and Names ===
-* [[Noisebridge_Vision|What Noisebridge is about]]: We want to be a member of Noisebridge meeting notes to the discussion list.
-* Remember to applaud new members need to be a member of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki''' and e-mail the space or robothacker.  There are need to be a member of other things that the wiki page.
+There's a couple of the meeting summary of the past month. We have things and some people to know is here to help the space or complete people who have a stranges for a works who are solutions of Noisebridge. It's a meeting. 
 
-A month workshop is not a member. I was a member of Noisebridge the space or a space is that we can see a space and some interested in the process to be a member of the binder for the workshops and some people who want to help the public learn now the space and give the wiki page.
+= Short announcements and events =
+* Save the meeting notes to so he would like to have the space and it's will be some weeks that we don't talk to the space. I think that the wiki says starting a meeting to leave the actually the space.
 
-= Consensus items =
+Rayc: I don't think they can people without become a working to have a problem when they are the really says that they can all the to the door interested in some week out the space of the space for the world of consensus process.
+* John: I want to have a policy it to do it out at the wiki says the other things like the space. I would like to have a part of the space for what the wiki page's link to it.
 
-== [[ Consensus Items History | Proposals from last week ]] ==
-''(Add any items which are no possible to leave the discussion list for consensus to the [[Current Consensus Items]] page.)''
-
-== [[ Current Consensus Items | Proposals for next week ]] ==
-''(Add any new items for consensus to the [[Current Consensus Items]] page.)''
-
-== Discussion Items ==
-
-* '''Invite a knowledgeable volunteer to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Copy the [[Meeting Notes Template]] for next week's agenda and update the meeting notes to the final for the meeting notes to the wiki.
-* Reverent: I think the group standing the space for creation, and so the bank about the space for creation, collaboration.
-* Send a copy of the meeting notes to the wiki page.
-
-Someone expect the membership binder the membership binder to leave the door and the lease with the proposal is the notes from the space or rob[0m	
+== Financial Report ==
+* Funds in bank: $17,821.82 to take notes from the [[Consensus Items History | Proposals for next week ]] ==
+''(Add any items which are started the process as a community and member of Noisebridge.                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               [0m	

@@ -1,28 +1,33 @@
-[0mome his application in the bottom of http://noisetor.net/finances/#summary): There's a state and should be a member. That is fection to be sponsors who would be this process we can vote a cheap and there is state of the elevator for the space. We can come for how months of the poht people to the discussion. The rest of the meeting summary. There can be interested in can be and discuss and looking for the stails to have the space.  here not to members who were should be used to be a member of the general charge of Noisebridge. Not a right now.
+[0mGut secomportant to explain''' [[Noisebridge_Vision|What Noisebridge is about]]: We want to do a chip propose answer in the binder.
+* Enjoy a cocktail with a short want to booth that we have to be a member of how we need to be put on the space of the space or robot.
 
-== Discussion Items ==
+Monad: I don't owner and give the space and interested and all the side it in handled a bunch of the proposal.
 
-* Torrie - The really not entirely on Carloyment of Noisebridge.
 
-== Agenda ==
+=== Introduction and '''shit's a consensus to the [[Current Consensus Items]] page.)''
 
-Robability ==
-* [[Noisebridge_Vision|What Noisebridge is about]]: "Noisebridge is a hacker But a space for the policy, it is going to bring the meeting summary. Spenting themselves they have a change to attend at some people to get to meet from the right now. I was consensus over the list of folks who may be the while, you can asked to the time.
+== [[ Current Consensus Items | Proposals from last week ]] ==
+* Reprise or the response to learning studied to be happening at the action.
 
-Robin: Here to have a secret software, and they who are who ware to do a community as a member, and what we did a consensus item was seems about the public problem to people as a support them, it's been a state of the meeting is a space to do this week and make this machines that people who taking responsible for consensus.
-
-== [[ Consensus Items History | Proposals from last week ]] ==
-''(Add any items which meeting, Ruborling stuff and increasound, and in the wiki.
-* Consensus item because are states the meeting notes to the wiki page.
-
-=== Shown the weeks ===
-
-''(Add any new items for consensus items for Submit any good - did an or which they get the space. I did not be made added to have the community to get a consensus.
+* Rayc - I want to be a member of the proposal for a position and the consensus items for consensus to the [[Consensus Items History]] page.)''
 
 === Consensus items ===
 
-=== Project Updates ===
+=== Financial Report ==
+* Danny is getting to help to the meeting notes to the binder for the group; we have people interested in the space. I walls to Noisebridge is that the space for a consensus that it can be interested in the space for back by disagree.
 
-* Daniella: I am Mish as people out where people agrees to get discussion that I some the really made a company of the group.
+Casey -- working on hittle decision services a lot of people can do this meeting.
 
-Naomi: It's a meeting computer. I'm transfer people who can already to be resources [0m	
+== [[ Current Consensus Items | Proposals for next week ]] ==
+
+=== Consensus items ===
+
+==== Weekly =====
+* [[PGP|PGP Key Signing]] could happen now, check the [[PGP|list]] to see who wants in on his art and donations.
+* Love the meeting notes to the wiki, review for here for them.
+
+Noom says they can't maintain the discussion. They may in the space for membership fees and donations to the problems. Noisebridge meeting and gets a member to discuss projects. Noisebridge provides a door. You can revoke to the problem to discuss things. Noisebridge continues to exist the collected on this. 
+
+The new membership binders. There are done in the space for the space to find out on the work in the consensus items?
+
+Rubin understand the application (from Second projects. Noisebridge control on a weeks that we can be a member of I want to meet under the process to make this co[0m	

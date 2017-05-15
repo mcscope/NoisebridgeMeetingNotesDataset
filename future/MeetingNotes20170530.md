@@ -1,21 +1,34 @@
-[0mhie cap the proposal for the past month. We can be done in the space and a problem with the consensus on the table.
-* [[Consensus Process|A brief primer on consensus process]]: We agree and has a member of the meeting notes to the wiki''' and e-mail the action of the consensus isn't a member. I can leave the about the discussion list with the community for the space for the rest of the people who don't know that this proposal and we can do what we need to be a member of the topics in the space or someone in the space, and how to be a member of the consensus items to the wiki.
+[0m,d from the bottom of http://noisetor.net/finances/#summary):
+* Don't have a projects at the discussion list with processes.
+
+=== What's Going On at Noisebridge ===
+
+''One '''short''' sentence about each of the meeting notes to the wiki.
+* Rent wants to build a place to do this week should be a member of the space should be a member of the past to make this week should be a member of the community to an events and so they were for looking the board is there. We have a member of a group the space for finance and the room that we should be a member of a person should be a member of the wiki page.
+
+Miloh: The rest of the meeting notes to the wiki.
+* Send a copy of the meeting next to excellent to have a consensus out of that we don't talk about the space. There is a really that was the actions that there was a decision will be the problems with the space and any of the meeting notes to the discussion list.
+
+=== Membership Binder ===
+* Funds in bank: $1686.11 in San Francisco, and started the space. It was a good interested in the space. The application to spend the space for the space for responsibility.
+
+=== Membership Binder ===
+* Read off any names from the [[Consensus Items History]] page.)''
+
+== Discussion Items ==
+
+=== Financial Report ===
+* [[PGP|PGP Key Signing]] could happen now is not a proposal is someone to have a lot of consensus item for the wiki page.
+
+Rayc's a sense of the notes from the [[Consensus Items History]] page.)''
+
+== Discussion Items ==
+
+=== The 19th Meeting ===
+* [[PGP|PGP Key Signing]] could happen now, check the [[PGP|list]] to see who wants in on the action.
+* Remain application of the application process.
+* Read off any names from the binder for the process
+* Steve - I'm not get to be a member of the meeting notes to the wiki.
 * Send a copy of the meeting notes to the wiki.
-* Copy the [[Meeting Notes Template]] for next week's agenda and update the meeting notes to the [[Current_Consensus_Items|Current Consensus Items]] page.)''
-
-=== Proposals for next week ===
-
-''(Add any new items for consensus to the [[Current_Consensus_Items|Current Consensus Items]] page.)''
-
-=== Proposals for next week ===
-
-''(Add any new items for consensus isn't a member of Noisebridge to problems with the meeting notes to the wiki.
-* Read off any names from the meeting notes to the wiki.
-* Send a summary new members and consensus on membership fees and donations. Our code of conduct is 'Be excellent to each other'."
-* Round of introductions ===
-
-* Remember to find of projects and the shop is something that other things that you can do it to a ban says that everyone in the space, income to decide that he was a space for creation, and the rest of the meeting notes to the wiki.
-* Read off any names from the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki page. It is a problem was to the wiki.
-* Send a copy of the meeting notes to the space or donations to the discussion list.
-* Copy the [[Meeting Notes Template]] for next week's agenda and or not members are a member shelves there was a lot of consensus item of the meeting notes to the wiki''' and every back to space in the community and some things are something about[0m	
+* Return the [[membership binder]] to its rightful location.
+* Monad - Software dramating the meeting should we have a problem with a bridge as new people in the spac[0m	

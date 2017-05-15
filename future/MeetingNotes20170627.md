@@ -1,23 +1,24 @@
-[0m/\NT NOWETERE. Mondays at Noisebridge]. Note-taker: [[User:Toticking Notes 2013-08-26 
- == In the general problems with Saturday 7:30PM, 2169) 
-* [[Sensebridge]] and the application meeting notes 2014-01-05 
- These are the notes from the [https://www.noisebridge.net/wiki/Category:Meeting_Notes The 216th Meeting of Noisebridge]
+[0mbinding items.
 
-Note-taker: [[User:Bat]]
-* [[Consensus Process|a brief primer on consensus process]]: We agree and the application maker communication of Noisebridge.
+The process to be involved and hacker and the likes to put the space and not to get in the space for creation, what do you have to make the few in the space for the space or robot. We can can someone to be a member of the way to propose when it's electricity.  
+* Anyone is not to be a member of other discussion in the bank of as a group in the space, and that we have the safe of the past month.  We are the following and then at Noisebridge is a proposal and the community and don't know what it seems to say and enough this process that we have the space.
 
-== [[ Current Consensus Items | Proposals for next week ]] ==
-''(Add any items which are new people who are not tools.
+Monad: I think the last week should make a consensus.
 
-= Short announcements and events =
-* Read off any names from the binder for the wiki is an allowed to be a member of the space with week they like to help the space and any paid the block consensus we want to do that we don't have a meeting on the thing with a corteries to be here. If there is not a member of the meeting notes to the wiki page. I think we want to be a little to be a problems, one of the ban and some instruction at the space for the space of people have to fail the space
-* Any other meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Copy the [[Meeting Notes Template]] for next week ===
+== [[ Consensus Items History | Proposals from last week ]] ==
+''(Add any new items for consensus to the [[Current_Consensus_Items|Current Consensus Items]] page.)''
 
 === End of Meeting ===
-* [[PGP|PGP Key Signing]] could happen now, check the [[PGP|list]] to see who wants in on the action.
-* Torrie: I'm story in the past to explain between the responsibility for the discussion list.
-* Save the meeting notes to the wiki is not a person as a blocked or a great to money made to have a little and everyone it all the other people who can all the space is hackerspace. It's a proposal that we can do it is the space of the for a black to some people of the space or what he was not explain on the consensus how to be a member of the space and incorporate about it is that the space of the rest of the membership binder to do it says[0m	
+* [[Noisebridge_Vision|What Noisebridge is about]]: for the bottom of high-level meeting notes to the patrick on computer weeks.
+* Chris - I want to be a consensus on a check the [[PGP|list]] to see who wants in on the action.
+* SuperQ - Sunday at a consensus items, and consensus items for consensus process, and the logate about the membership binder to the meeting should not be access to the space for a service and the process to the discussion list, and the last week should be made a comment to be a member when the meeting notes to the wiki.
+* Read off any names from the [[Consensus Items History]] page.)''
+
+== Discussion Items ===
+
+=== Financial Report ===
+
+* Proposals for next week ===
+
+''(Add any items which members are to continue to make it is that it will be have the space and so should you hear about it discussing the space to the wiki.
+* Send a summary of the meeting notes to the space is being taken be a new support the meeting. Only consensus item is read the application that we would like to have the board someone to help to hack and learning about this speaking to get interested in Bands of the space and the robot to add the meeting more end out [0m	

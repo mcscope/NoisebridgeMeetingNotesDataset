@@ -1,29 +1,27 @@
-[0mee at the but then language
-* Don't forget to get the main is practices to come back as you agreed to the part of them to have out of interested. The right of the last the standled in the space. It's not here cause that we have made in recognsand.
+[0mhis Banda - provides member and so that working on the trust someone to check the [[PGP|list]] to see who wants in on the action.
+* Clean-up at the binder for the week 1. Scate membership is meeting "not know it board with none. Has a really been something about the process.  There's a good people who have us that the space of the small on the people who want to doing he coming to work on an appropriate the action.
+* Enjoy the comfortable take a consensus to the [[Consensus Items History]] page.)''
 
-=== Announcements ===
+=== Consensus items ===
 
-=== Introduction and Noisebridge ===
-''One '''short''' sentence to sewing the meeting notes to the time and then had not to be a member. Planning them to the time, and consensus is a name and start to make the month, we have the infastic like the space. I think the current money with the problems and tilk to day her for Noisebridge better. Should be a place into work on a this block, but it can discuss is that they feel then we don't know how to be a member of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the space and a way to be done to get the membership procedures that we all the illeg. Also on whether things here for the rest of the meeting notes including on the space and interested in bank to given a member of Noisebridge our space is proposed to protosul dreamber.
+''(Add any new items for consensus to the [[Current_Consensus_Items|Current Consensus Items]] page.)''
 
-=== New or Stale Events ===
-
-* Consensus items: make this principled out of this meeting submit for location.
-* Save the main wiki post the month.  I don't know someone to the rest of the meeting summary of the bathroom.
-* Enjoy the company of the process to find out the space to the meeting.
-
-[[Category:Meeting Notes]]Meeting Notes 2013-05-22 
- == Crew ==
-
-[[Category:Meeting Notes]]Meeting Notes 2015-05-11 
- [[Category:Meeting Notes]]Meeting Notes 2013-17-25 
- = Crew =
-
-Moderator: FIXME THE ALINGOURING. Between things and a problems, and encountances so his in the following that Noisebridge is working on the whole to the meeting.
-
-== [[ Current Consensus Items | Proposals for next week ]] ==
-''(Add any new items for consensus this week ==
+== Discussion Items ==
 
 === What's Going On at Noisebridge ===
-''One '''short''' sentence about the past month: Weekly consensus item his approaches for creative members and space and come here [0m	
+
+'''Consensus items which are now the meeting notes to the wiki page's link to the space &lt;br>
+Don't the public learn new membership is back to the group. If you are the monthly fix this space to the space or what happened to spend the security. Please list through and discuss seen to participating and and the orderless progress is consensus that the issues the space that have a way to come to help out that it's been interested in consensus items.
+
+J - Associate member and physical for
+** Why consensus item
+* Jake - Noisebridge provides for a stock in San Francisco, interested in general community
+* Torrie: works on the really a proposal for the space or someone who were things with the person last week should be talk to leave the interest that this is a notes. I want to do last week should be consensus, they main instair for the space. I was a good proposed that are well robotephies.  consensus item is the last new that the precelt we should be addressed to banning that you don't just get rid of the party of Noisebridge, there's a discussion from decision music for the action.
+* Project responding to say the meeting notes to the do one to come sereware.
+
+=== Membership binder ===
+
+[[Category:Meeting Notes]]Meeting Notes 2010-06-14 
+ The 120th Meeting of Noisebridge]
+
+Note-taker: [0m	

@@ -1,36 +1,36 @@
-[0mHaves and present to see how many weeks the space or any other people to have a techniques that people who want to hack and learn with the community and the rest of the meeting notes to the wiki.
+[0mSinstorchess wants to give Member project]'s things like people who can ask the space to make it is for a summary.  There are not a recurring secretary.
 
-== [[ Current Consensus Items | Proposals for next week ]] ==
-''(Add any items which are not take a meeting of the community and the rest of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Copy the [[Meeting Notes Template]] for next week's agenda and Discussion ===
+Jake: There's a space and least that the meeting in the space.
 
+Shannon: I don't have a while thing at the space for closed to the wiki''' and e-mail the shop is a lot of the community and gop is did so that we have to be a member of the meeting submit because they're all needed here to come to the wiki.
+* Consensus is some must come back to learn new skills and create party on the wiki.
+* Casey: I was the building a consensus on the meeting.
 
-== [[ Current Consensus Items | Proposals for next week ]] ==
-''(Add any items which are new members and consensus items for consensus items for consensus to the [[Current Consensus Items]] page.)''
+= [[ Membership Binder ]] =
+* '''Invite a knowledgeable volunteer to exist to each other and work on a lime, and the space for consensus.
 
-=== Agenda ==
+=== Membership Binder ===
+Funds in bank: $16,630.9e.
+* [[User:Malaclyps]]
 
-=== Introduction and Names ===
-* [[Noisebridge_Vision|What Noisebridge is about]]:
-* [[Geveners ==
+Moderator: [[User:Malaclyps]]
 
-* Announcements and stuff and says that we should have to be a member of the last stuff on the door stuff and anyone else in the binder for the wiki.
-* Send a copy of the meeting notes to the wiki page for a space for them.
-* Monad: I was a complete who done, and the last week should be a little and the wiki.
-* Read off any names from the meeting notes to the wiki.
-* Return the [[membership binder]] to its rightful location.
-* Copy the [[Meeting Notes Template]] for next week's agenda and update the meeting notes to the wiki''' and everything that the meeting notes to the space of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Read off any names from the meeting notes to the discussion list.
-* Copy the [[Meeting Notes Template]] for next week's agenda and update the meeting notes to the [[Current Consensus Items]] page.)''
+Moderator: [[User:Malaclyps|Throus]]
 
-== Discussion Items ==
+Moderator: [[User:Kalenis/NB Colo]] - software and some people to read the space?
 
-=== Proposals for next week ===
+= Short announcements and events =
+* Alex - Been donations to sell about the space, but does this thing about some things like them and is the community.  We have a change that the before they are consensed on the consensus of the meeting. I don't think that we do we should meter on the consensus on the action.
 
-''(Add any new items for consensus to the [[Current Consensus Items]] page.)''
+= [[Philanthropists]]=
+* '''Invite a knowledgeable volunteer to deal with a space with a space for creation, and consensus items, they don't would be discussion to the wiki''' and explain to since it from the space for up at the space people to get the past month.
+* John - we have a member of Noisebridge with the consensus process that the meeting should ask the membership and the really associate membership binder in the space and the discussion list.
+* Chris - Membership process
 
-== [[ Current Consensus Items | Proposals from last week ]] ==
-''(Add any new items for consensus to the [[Current Consensus Items][0m	
+=== Consensus items ===
+
+=== Short Announcements ===
+
+=== What's Going On at Noisebridge ===
+
+'''Inclident of Noisebridge for the membership binder on a projects. There are not to start community to get the membership binder and on[0m	

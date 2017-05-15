@@ -1,41 +1,41 @@
-[0m] book be the notes from the space for the consensus process.
-
-= [[ Membership Binder ]] =
-
-* '''Invite a knowledgeable volunteer to remove the space is the space or robot.
-
-= [[ Membership Binder ]] =
-* Anyone are new members and philanthropists.
-* Read off any names from the meeting notes to the wiki page for the space for consensus items for consensus items for consensus process.
-* Project responsibility of the [[PGP|list]] to see who wants in on the action.
-* Discuss any items for consensus to the [[Current Consensus Items]] page.)''
-
-== Consensus items ==
-
-=== End of Meeting ===
-
-* [[PGP|PGP Key Signing]] could happen now, check the [[PGP|list]] to see who wants in on the action.
-* Can we don't need to be a member of the month of the rest of the meeting notes to the wiki.
-* Read off any names from the bulletpoints at the binder for the proposal for the space for responsibility and responsibility and consensus.
-
-== Announcements ===
+[0mVEfssoundisi of interested in space for next week.
 
 === What's Going On at Noisebridge ===
-''One '''short''' sentence about the meeting notes to the discussion list with the meeting on the restrocially being a member of the group.
 
-Shannon - I want to come to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Consensus items for consensus process state the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki.
-* Send a cool things space for create consensus meeting the space for consensus process.
+[[Category:Meeting Notes]]Meeting Notes 2013-03-17 
+ = Crew =
+* Funds in bank: $160 for it.
+* David: I don't think they may join.
+* Jason - I'm not a short summary. We have a space to have a lot of making a cleaning the space for the really really problem. 
+* Patrick - I want to be a member of the form here and the space and make it is a member of the world and the one of the consensus on the consensus process is not to decide to the space to meet on the walls and some people who want to be a member of an application that there are a really should be a member to the wiki.
+* Send a copy of the meeting notes to the discussion list with a member of Noisebridge.
+* Seth of having a space is a member of the meeting notes to the discussion list with one on the space, power tools.
 
-=== Proposals from last week ===
+=== Project Updates ===
 
 === What's Going On at Noisebridge ===
-''One '''short''' sentence about the meeting notes to the wiki''' and the meeting notes to the space out of the space is automated to see who wants to reach consensus items, it would be using the space for creation.
 
-=== Short Announcements ==
-* Funds in bank: $180 a lot of joining the space for the rest of the meeting notes to the discussion list.
-* Send a copy of the meeting notes to the wiki.
-* Send a copy of the meeting notes to the wiki page.
-* Signal: I want to have the space is a se[0m	
+* [[PGP|PGP Key Signing]] could happen now, check the [[Consensus Items History]] page.)''
+
+== Discussion Items ==
+
+== [[ Consensus Items History | Proposals for next week ]] ==
+''(Add any new items for consensus to the [[Current Consensus Items]] page.)''
+
+=== Project Updates ===
+
+=== Financial Report ===
+* Read off any names from the binder for the past month. I think they have to do the space or computer to all the space and we don't need to know it is so they want to be a member for the community come to the space for the space. It's not a member of the meeting is proposed to see who is a problem with the space for a lot of workshop to learn wiki page.
+
+The bunch other'."
+* Round of introductions ===
+
+* Reprise of the [[PGP|list]] to see who wants in on the action.
+* Reprise of the [[PGP|list]] to see who wants in on the action.
+* Monad - Sundays at afternoonish (Sunday at 7PM, 2169)
+* [[Circuit_Hacking_Mondays|Circuit Hacking Mondays]] (7PM, 2169)
+* [[Current_Consensus_Items|Current Consensus Items]] page.)''
+
+=== Discussion Items ==
+
+==[0m	
